@@ -1,5 +1,5 @@
 # Hello-World1
-Msparks from Boulder, CO
+Boulder, CO
 Enjoy Coffee
 Breakfast
 Comic books
